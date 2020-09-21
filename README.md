@@ -1,0 +1,1 @@
+# minoriyam.github.io
